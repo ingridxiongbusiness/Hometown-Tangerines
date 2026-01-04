@@ -1,2 +1,3 @@
 # Hometown-Tangerines
-Our goal is to transport back to your home!
+Our goal is to you transport back to home!
+We offer a wide range of items, from handmade crochet items to clay projects.
